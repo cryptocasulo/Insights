@@ -1,1 +1,1 @@
-# devcoin
+# Insights
